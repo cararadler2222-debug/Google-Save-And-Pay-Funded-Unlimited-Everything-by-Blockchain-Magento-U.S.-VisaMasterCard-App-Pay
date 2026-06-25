@@ -1,0 +1,2 @@
+# Google-Save-And-Pay-Funded-Unlimited-Everything-by-Blockchain-Magento-U.S.-VisaMasterCard-App-Pay
+Paymentmethod funded everyday buying account used anywhere $750millions each buy, also all positionsall bankings broker real estate officer cashier developer creator licenser establisher treasury computered AI with typescriptalways only approved and accepted with all proofs of ownerships and all networkings for all orders bought are brought to me, 
